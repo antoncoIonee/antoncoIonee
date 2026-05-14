@@ -14,8 +14,6 @@ extra facts n slop: i have audhd, osdd-1b, + more, im prussian/slavic, i speak f
 
 i follow a lot of people but im not petty enough to make a whole other github for it,,,, guys just be normal and follow everyone not everything has 2 be aesthetic
 
-ok GO MY STAMP AND BLINKIE HOARDDDDD FUCKK (ps. all penny arcade related blinkies/stamps are made by @adriansblinkiehordingadventure on tumblr! go follow them!)
-
 ![](https://64.media.tumblr.com/0c0047b607055ca976489d50de2c5b14/1c75db46c04fead0-1d/s250x400/9d5b8f1f1437fcb6f1d7e1ca55ce1e41de3bd4e8.gifv)
 ![](https://64.media.tumblr.com/c538ea92e5d650b32dd1852dd233eea0/1c75db46c04fead0-bf/s250x400/6a8af3781669996549a1dcc2a7b3dcfd8ca54bb8.gifv)
 ![](https://64.media.tumblr.com/cb2f809f3a5ba980a029ecc6e75d1c8d/1c75db46c04fead0-94/s250x400/1ab0395d05ef64ecb27420465d914b72479fa833.gifv)
