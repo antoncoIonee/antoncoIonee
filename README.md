@@ -58,5 +58,7 @@ ok GO MY STAMP AND BLINKIE HOARDDDDD FUCKK (ps. all penny arcade related blinkie
 ![](https://64.media.tumblr.com/82915336439e80fed30631bab3cf19d7/562bc653002dd72e-dd/s250x400/35d439a9a5dd9d30405565ea71f05cea991876f8.gifv)
 ![](https://64.media.tumblr.com/6dcee269757801b3d881d7a6e8797909/22cc1a3b7648d768-8c/s100x200/ef0d1348c07ac3b5e1e078bf44a3e02f45f79f23.gifv)
 ![](https://atabook.org/images/button.gif)
+![](https://media.discordapp.net/attachments/1485254900509180006/1502985637354274948/Untitled21_20260508001823.png?ex=6a06f9f4&is=6a05a874&hm=87a029612ed14cfdafd06305809dfc43134fb04ecf4e2af25c880e4fce51259b&=&format=webp&quality=lossless&width=198&height=112)
+![](https://media.discordapp.net/attachments/1485254900509180006/1502985636489990206/Untitled21_20260506215054.png?ex=6a06f9f3&is=6a05a873&hm=b7704583597a618106676b5e508895c7b335b99fd40c04b98ec22f1f6a291fb9&=&format=webp&quality=lossless&width=198&height=112)
 
 p.s. i know tycho is a weirdo in some of the comics + some of his dialogue in pnati; i dont want to dwell on it as im uncomfortable with it too :-) i like his character outside of his weird aspects, both in otrspod, pnati, and the penny arcade comics in general. thx for understanding!
