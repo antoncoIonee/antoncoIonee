@@ -8,7 +8,7 @@ my main special interests right now are penny arcade, homestar runner, and regre
 
 my favorite artists/bands r weezer, megurine luka, they might be giants, go:eskimo, self, foo fighters, and bis :-)
 
-little to no dni as i block freely, but darkshippers please dont int with me, follow me, or sign my ata ^-^
+dni darkshippers, tt/td people, glitch fans
 
 extra facts n slop: i have audhd, osdd-1b, + more, im prussian/slavic, i speak french, im a satanist, and i plan to study architecture!
 
