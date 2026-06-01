@@ -4,7 +4,7 @@ hello im tycho / alf , , woah who the fuck is this guy
 
 i go by he / they and im a trans gay man, along with a whole lot of other useless bla bla bla labels
 
-my main special interests right now are penny arcade, homestar runner, and regretevator (my fav characters are tycho ,,, duh, marzipan, strong sad, and pest!)
+my main special interests right now are penny arcade, homestar runner, tf2, and regretevator (my fav characters are tycho ,,, duh, marzipan, strong sad, scout, medic, and pest!)
 
 my favorite artists/bands r weezer, megurine luka, they might be giants, go:eskimo, self, foo fighters, and bis :-)
 
