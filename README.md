@@ -4,11 +4,15 @@ hello im tycho / alf , , woah who the fuck is this guy
 
 i go by he / they and im a trans gay man, along with a whole lot of other useless bla bla bla labels
 
-my main special interests right now are penny arcade, homestar runner, tf2, and regretevator (my fav characters are tycho ,,, duh, marzipan, strong sad, scout, medic, and pest!)
+my main special interests right now are penny arcade, homestar runner, tf2, and regretevator so,,,, pls int if u like these
 
 my favorite artists/bands r weezer, megurine luka, they might be giants, go:eskimo, self, foo fighters, and bis :-)
 
-dni darkshippers, tt/td people, glitch fans
+dni!!!! basic dni + anti-recovery shedtwt, darkship, lolishota, people who genuinely believe tt/td is valid (grow up dudee)
+
+ok now im getting petty these are. fandom dnis...... bewarrr. ok dni ANY minecraft smp/args (specifically unstable smp and whatever the fuck verity is from idk), glitch (specifically tadc), forsaken, dandys world/flavor frenzy, among us, animal hospital (thin ice), kaiju paradise, homestuck/hiveswap, south park (thin ice. again), class of 09, starters (thin ice mainly but like if you genuinely do not know any other characters in pokemon besides chespin fennekin jirachi and pikachu dni you larp LMFAOAOO), toy story (do i have to explain why im putting this here), crk/crob, cod
+
+most of these fandoms are here because i either 1. dont like the people who are in the fandom and i have bad experiences with them or 2. the people who work on these games/communities (ex. dandys world) are terrible people and id rather not int with people who continue to support 
 
 extra facts n slop: i have audhd, osdd-1b, + more, im prussian/slavic, i speak french, im a satanist, and i plan to study architecture!
 
