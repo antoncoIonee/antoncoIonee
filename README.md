@@ -10,7 +10,7 @@ my favorite artists/bands r weezer, megurine luka, they might be giants, go:eski
 
 dni!!!! basic dni + anti-recovery shedtwt, darkship, lolishota, people who genuinely believe tt/td is valid (grow up dudee)
 
-ok now im getting petty these are. fandom dnis...... bewarrr. ok dni ANY minecraft smp/args (specifically unstable smp and whatever the fuck verity is from idk), glitch (specifically tadc), forsaken, dandys world/flavor frenzy, among us, animal hospital (thin ice), kaiju paradise, homestuck/hiveswap, south park (thin ice. again), class of 09, starters (thin ice mainly but like if you genuinely do not know any other characters in pokemon besides chespin fennekin jirachi and pikachu dni you larp LMFAOAOO), toy story (do i have to explain why im putting this here), crk/crob, cod
+ok now im getting petty these are. fandom dnis...... bewarrr. ok dni ANY minecraft smp/args (specifically unstable smp and whatever the fuck verity is from idk), glitch (specifically tadc), forsaken, dandys world/flavor frenzy, among us, animal hospital (thin ice), kaiju paradise, homestuck/hiveswap, south park (thin ice. again), class of 09, starters (thin ice mainly but like if you genuinely do not know any other characters in pokemon besides chespin fennekin jirachi and pikachu dni you larp LMFAOAOO), toy story (do i have to explain why im putting this here), crk/crob, cod, the freak circus (IT DOESNT MATTER WHETHER OR NOT YOU ARE AN ADULT OR MINOR DNI)
 
 most of these fandoms are here because i either 1. dont like the people who are in the fandom and i have bad experiences with them or 2. the people who work on these games/communities (ex. dandys world) are terrible people and id rather not int with people who continue to support these games or communities ^-^ 
 
